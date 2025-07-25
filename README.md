@@ -1,5 +1,3 @@
-# 👋 Hi, I'm Vlas Nagibin
-
 ### 📫 Contact Me
 - **Phone:** +66 (82) 434 - 5897
 - **Email:** [nagibinvlas@gmail.com](mailto:nagibinvlas@gmail.com)  
